@@ -1,1 +1,1 @@
-# Fenjue_Burning-Technique
+焚诀收集中... By 豆包 ai 生成
